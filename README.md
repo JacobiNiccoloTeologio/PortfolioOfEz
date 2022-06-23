@@ -1,2 +1,0 @@
-# PortfolioOfEz
-jacoblow
